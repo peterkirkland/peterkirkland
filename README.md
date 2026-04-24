@@ -9,6 +9,8 @@ i can be quite shy but I'll try speaking up for myself, I'm a lot more energetic
 
 i don't exactly have a DNI... but please try to be respectful when we never met, especially when I'm still a minor!! if you do anything problematic I wouldn't exactly care but I wouldn't support either... sorry!
 
+more information about me is on my <a href="https://github.com/sillyaoi" target="_blank">main </a>...!!! 
+
 dance to pay le ✨respect✨
 how EVERYONE be moving:
 

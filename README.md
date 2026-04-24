@@ -12,6 +12,7 @@ i don't exactly have a DNI... but please try to be respectful when we never met,
 more information about me is on my <a href="https://github.com/sillyaoi" target="_blank">main </a>...!!! 
 
 dance to pay le ✨respect✨
+
 how EVERYONE be moving:
 
 ![Image](https://github.com/user-attachments/assets/5e43b9e6-11f5-4436-a28f-4459bc30955a) 

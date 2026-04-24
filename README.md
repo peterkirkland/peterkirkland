@@ -5,11 +5,12 @@
 
 HELLO!!!!!!!!!!! my name is Lukas! you can call me Luks or Luk or any other nicknames coz I don't really mind... I'm always at the hetalia base! sometimes sitting alone or with friends, either way. sit with me!!! I really love company, and I'm sure my friends don't mind! 
 
-i can be quite shy but I'll try speaking up for myself, I'm a lot more energetic when I'm close with someone! plz oomf me up I need hetalia frends so bad... ;_;
+i can be quite shy but I'll try speaking up for myself, I'm a lot more energetic when I'm close with someone! plz oomf me up I need hetalia frends so bad... T_T
 
 i don't exactly have a DNI... but please try to be respectful when we never met, especially when I'm still a minor!! if you do anything problematic I wouldn't exactly care but I wouldn't support either... sorry!
 
 dance to pay le ✨respect✨
+how EVERYONE be moving:
 
 ![Image](https://github.com/user-attachments/assets/5e43b9e6-11f5-4436-a28f-4459bc30955a) 
 
